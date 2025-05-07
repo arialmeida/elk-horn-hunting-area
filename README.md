@@ -1,1 +1,0 @@
-# elk-horn-hunting-area
